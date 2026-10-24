@@ -36,6 +36,7 @@ I love my boyfriend and my sister,, they are so important 2 me...
 - Sirius fans. I'm entirely serious, no pun intended.
 - Anti any of these listed: alterhuman, SFW agere/petre, soulbond, yumeship, etc etc
 - Doubles (I've listed above already)
+- Yumes of my kintypes
 
 ### Ok that's it I think bye
 <img width="990" height="613" alt="IMG_7218" src="https://github.com/user-attachments/assets/75dbb688-71bd-4386-924d-0def78ed6b2f" />
